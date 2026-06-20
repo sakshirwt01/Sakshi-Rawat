@@ -76,7 +76,7 @@ Passionate about transforming raw data into meaningful insights and building dat
 
 ## 📫 Connect With Me
 
-🔗 LinkedIn: YOUR_LINKEDIN_URL
+🔗 LinkedIn: https://www.linkedin.com/in/sakshi-rawat91
 
 📧 Email: sakshirwt557@gmail.com
 
